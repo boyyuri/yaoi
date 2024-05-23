@@ -1,3 +1,4 @@
+![Untitled217_20240521120915](https://github.com/boyyuri/yaoi/assets/170581375/b9fdafe5-2c30-4303-a0c1-b1f997b30d41)
 meow meow meow meow
 ## xtra info
 ermm im autidtic an ion rlly understand tone that much so pls b patient
